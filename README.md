@@ -1,7 +1,6 @@
 <p>
     <samp>
-        <strong>
-            You cannot improve your past, but you can improve your future, once time is wasted, life is wasted.				</strong>
+        <strong>To be a better person and escape from the earth!</strong>
     </samp>
 </p>
 
